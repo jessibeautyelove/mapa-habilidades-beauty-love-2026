@@ -1,6 +1,10 @@
 # mapa-habilidades-beauty-love-2026
 Mapa de Habilidades DIO para Beauty&amp;Love — inventário, análise de mercado e caminhos de monetização.
 
+Link do Documento solicitado pela DIO no Drive? ## Entrega do Projeto
+
+Clique [aqui](https://drive.google.com/file/d/1vEQJGKWSlRspiZjMb5KRlwOIMJJrtEro/view?usp=drivesdk) para acessar o documento de entrega do projeto.
+ 
 
 # Mapa de Habilidades — Beauty&Love (DIO)
 
